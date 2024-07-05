@@ -1,2 +1,0 @@
-# AITS_CODE
-haripriya
